@@ -10,6 +10,7 @@ Find GIFs to tell your story.
 When you're ready, use your new GitHub account to take a fork of your team's branch. 
 
 Click the story.md link, and click 'Edit'. Add your gif, and a few lines for the story. You'll need to use this format for the image:
+<br>
 <code>&#33;&#91;gif description&#93;&#40;http&#58;&#47;&#47;urlofyour&#46;gif&#41;</code>
 
 Then, send a pull request back to your team branch. Your coach will merge the pull request in.
