@@ -12,4 +12,5 @@
 <!--end team alpacas-->
 <!--begin team ducks-->
 ![and the duck charged at the cameraman](http://api.ning.com/files/H2SDFfWbZtYne87mirtni0pFGEuQ-83GGEMHq20fZWxlUCpqr7Sw0kHlYdlInGY5qzdw5hwC5R3-z7z7RS42cWM1KbJ4OLtm/xxxxxxxxxxxxxxxx.gif)
+![and the rainbow unicorn chased the charging duck](http://media.giphy.com/media/yTF8GYHr0oLvy/giphy.gif)
 <!--end team ducks-->
