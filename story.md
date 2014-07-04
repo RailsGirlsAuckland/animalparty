@@ -17,6 +17,8 @@ Old Earl gets super powers.
 
 I'm so fancy, you already know - I'm in the fast lane - From L.A. to Tokyo.
 
+![horsey](http://38.media.tumblr.com/tumblr_mcamqug5yJ1rjzp1po1_400.gif)
+
 
 <!--end team ponies-->
 <!--begin team bunnies-->
