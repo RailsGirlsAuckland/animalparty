@@ -35,6 +35,13 @@
 
 ![gif description](http://cur.glitter-graphics.net/pub/3146/3146938na9hmog2o3.gif)
 
+-![gif description](http://media1.giphy.com/media/CBNRuvWDuw2sM/giphy.gif)
+ -
+ -![gif](http://25.media.tumblr.com/76ea878e31830b41c1e42fb1a4d67518/tumblr_ml9dszKZeL1s7ugiao1_400.gif)
+ -
+ -![tiger](http://25.media.tumblr.com/tumblr_mbg7jtYyaA1qg1krko2_250.gif)
+ -
+ -![ottr](http://i.imgur.com/nJdP4.gif)
 
 <!--end team tigers-->
 <!--begin team alpacas-->
