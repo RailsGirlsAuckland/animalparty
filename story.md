@@ -5,6 +5,8 @@
 
 <!--end team bunnies-->
 <!--begin team tigers-->
+![birdie](http://media.giphy.com/media/13mJnogwwLGmxa/giphy.gif)
+
 #Fabulous
 ##Fabulous
 ###Fabulous
