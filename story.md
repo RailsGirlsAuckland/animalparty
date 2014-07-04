@@ -53,7 +53,7 @@ I SMELL FUU-UUUUUN! (Annette)
 ![owl](http://37.media.tumblr.com/25007fa61dae3637c0b0a12cc6d0490f/tumblr_n6qeivaZxV1s2yegdo1_400.gif)
 Excuse me, quiet down, some of us are trying to work! HOOT! (Annette)
 
-![snack time](http://37.media.tumblr.com/25007fa61dae3637c0b0a12cc6d0490f/tumblr_n6qeivaZxV1s2yegdo1_400.gif)
+![snack time](http://viralentertainment.org/wp-content/uploads/2014/01/hamster-nom.gif)
 Phew. Work is over. Time for snacks!
 
 <!--end team alpacas-->
