@@ -30,4 +30,9 @@ this duck was mistaken for a dirty patch of carpet
 ![A cat kicking itself](http://gph.is/XN67J3)
 
 ![this duck was mistaken for a dirty patch of carpet](http://a.gifb.in/092013/1378748336_vacuuming_a_duck.gif)
+
+using my puppy dog eyes
+![using my puppy dog eyes] (http://www.thefrisky.com/wp-content/uploads/2013/04/16/cute-puppies13.gif)
+
+
 <!--end team ducks-->
