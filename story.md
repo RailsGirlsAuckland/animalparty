@@ -4,6 +4,7 @@
 <!--begin team bunnies-->
 #Pre-Party
 ![bunny_bath](http://media.giphy.com/media/iDetu21VhxHtC/giphy.gif)
+![gif discription](http://media.giphy.com/media/z9tqT8hiuaNvG/giphy.gif)
 
 
 Gotta look good and be fresh at the Animal Party.
