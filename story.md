@@ -33,6 +33,7 @@
 
 ![gif description](http://giphy.com/gifs/CBNRuvWDuw2sM)
 
+![gif description](http://cur.glitter-graphics.net/pub/3146/3146938na9hmog2o3.gif)
 
 
 <!--end team tigers-->
