@@ -23,4 +23,4 @@ When your team is done, your coach will merge your team branch back into the mai
 
 # When you're done go:
 
-![here!](http://railsgirlsauckland.github.io/Rails-Girls-Training/#/)
+[here!](http://railsgirlsauckland.github.io/Rails-Girls-Training/#/)
