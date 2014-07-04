@@ -41,6 +41,10 @@ It's not a party without dancing
 ![confused doggy](http://viralentertainment.org/wp-content/uploads/2014/01/2.-Shiba-Inu-Scout-the-Bat.gif)
 Not sure what to make of all this animal kingdom hoopla. 
 
+![upset](http://media.tumblr.com/tumblr_m9fz8kYUwc1rnm87e.gif)
+I can't make it work, waaaaah!
+
+
 <!--end team alpacas-->
 <!--begin team ducks-->
 
