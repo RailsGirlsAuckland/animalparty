@@ -36,4 +36,8 @@ this duck was mistaken for a dirty patch of carpet
 
 this duck has had too much to eat
 ![too much to eat](http://31.media.tumblr.com/81f41ff0de03694bcd3add82c4397ceb/tumblr_myr04c9Hf41sj1nado1_400.gif)
+
+Meanwhile, the caterers were having some issues unpacking the food:
+
+![cmonnnnnn opennnnn, I get u good](http://img.izismile.com/img/img4/20110929/1000/funny_animal_gif_animations_01.gif)
 <!--end team ducks-->
