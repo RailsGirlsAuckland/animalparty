@@ -212,4 +212,8 @@ BATDUCK
 jazz hands
 
 ![jazz hands](http://i.telegraph.co.uk/multimedia/archive/02049/leopard-cub_2049345a.jpg)
+
+using my puppy dog eyes
+![using my puppy dog eyes] (http://www.thefrisky.com/wp-content/uploads/2013/04/16/cute-puppies13.gif)
+
 <!--end team ducks-->
