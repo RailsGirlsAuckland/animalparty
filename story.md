@@ -29,6 +29,10 @@ Hand washing party? (Sue-Li)
 ![Camel attack](http://weknowgifs.com/wp-content/uploads/2013/03/jurassic-camel-attack-gif.gif)
 Camel attack!
 
+![the invite] (https://i.chzbgr.com/maxW500/8232968448/h1DAE3B91/)
+word got out there was a party, everyone forgot their handbags...
+
+
 <!--end team alpacas-->
 <!--begin team ducks-->
 
