@@ -25,6 +25,8 @@
 
 ![Wazaaaaaaah](https://i.chzbgr.com/maxW500/5685016576/hD50996E9/)
 
+![gif description](http://i.imgur.com/nJdP4.gif)
+
 
 <!--end team tigers-->
 <!--begin team alpacas-->
