@@ -39,6 +39,12 @@ START THE MUSIC!
 
 ![Grandpa](http://i.imgur.com/6tFau.gif)
 
+#Megan's rat subheading
+
+![Rat](http://38.media.tumblr.com/4f8709925f64b0d7d999ca2edab35be4/tumblr_n3imy2nhML1r195ndo1_400.gif)
+![Rat](http://38.media.tumblr.com/f225816d6a716654570ea25a5208c516/tumblr_n1m6qmnrVo1shs94bo1_400.gif)
+![Rat](http://38.media.tumblr.com/e19f9f0181a9b04fea3e09e713f5d33e/tumblr_mso9qkTduu1raafdzo1_400.gif)
+
 
 <!--end team bunnies-->
 <!--begin team tigers-->
