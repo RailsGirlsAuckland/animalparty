@@ -15,6 +15,8 @@ Gotta look awesome and be fresh at the Animal Party.
 [rock'n](http://gph.is/12Bl7aD)
 
 ![COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH](http://media.giphy.com/media/K1SCAduBtyabe/giphy.gif)
+
+![And we were like whaaaaaaat?!](http://i.imgur.com/WIrUykX.gif)
 <!--end team bunnies-->
 <!--begin team tigers-->
 
