@@ -52,6 +52,10 @@ I SMELL FUU-UUUUUN! (Annette)
 
 ![owl](http://37.media.tumblr.com/25007fa61dae3637c0b0a12cc6d0490f/tumblr_n6qeivaZxV1s2yegdo1_400.gif)
 Excuse me, quiet down, some of us are trying to work! HOOT! (Annette)
+
+![snack time](http://37.media.tumblr.com/25007fa61dae3637c0b0a12cc6d0490f/tumblr_n6qeivaZxV1s2yegdo1_400.gif)
+Phew. Work is over. Time for snacks!
+
 <!--end team alpacas-->
 <!--begin team ducks-->
 
