@@ -5,17 +5,10 @@
 
 <!--end team bunnies-->
 <!--begin team tigers-->
-
-#Fabulous
-
-#Fabulous
-
-#Fabulous
-
-#Fabulous
-#Fabulous
-
 ![gif description](http://disneypicture.net/data/media/182/tigger1.gif)
+#Fabulous
+
+![Fake tiger!](http://www.hilariousheadlines.com/wp-content/uploads/2009/12/funny-tiger-photo-3.jpg)
 
 ![gif Happy Elephant](https://i.chzbgr.com/maxW500/6806376192/h13D80AD0/)
 
@@ -45,6 +38,8 @@
 ![gif description](http://giphy.com/gifs/CBNRuvWDuw2sM)
 
 ![gif description](http://cur.glitter-graphics.net/pub/3146/3146938na9hmog2o3.gif)
+
+![](http://i.imgur.com/nJdP4.gif)
 
 
 <!--end team tigers-->
