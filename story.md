@@ -21,7 +21,7 @@
 
 ![gif description](http://data.whicdn.com/images/31308363/tumblr_ll40kpUpaA1qaay1oo1_500_large.gif)
 
-![gif description](http://media.giphy.com/media/oENtFqfZZMIZq/giphy.gif)
+![little tiger](http://media.giphy.com/media/oENtFqfZZMIZq/giphy.gif)
 
 ![Majestic Shaking](https://38.media.tumblr.com/bcb18a773a35eaf8d8e8c2e5864e0a14/tumblr_n83f7vi5bk1smts3eo1_400.gif)
 
@@ -29,14 +29,7 @@
 
 ![Life of Pi Tiger](http://media.giphy.com/media/N1dXLHCuqwuM8/giphy.gif)
 
-![gif description](http://media1.giphy.com/media/CBNRuvWDuw2sM/giphy.gif)
-
-![gif](http://25.media.tumblr.com/76ea878e31830b41c1e42fb1a4d67518/tumblr_ml9dszKZeL1s7ugiao1_400.gif)
-
-![](http://25.media.tumblr.com/tumblr_mbg7jtYyaA1qg1krko2_250.gif)
-
-![ottr](http://i.imgur.com/nJdP4.gif)
-
+![gif description](http://giphy.com/gifs/CBNRuvWDuw2sM)
 
 
 
