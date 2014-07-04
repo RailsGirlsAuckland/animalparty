@@ -39,7 +39,7 @@ Git is so awful I can't even.
 It's not a party without dancing
 
 ![confused doggy](http://viralentertainment.org/wp-content/uploads/2014/01/2.-Shiba-Inu-Scout-the-Bat.gif)
-Not sure what to make of all this animal kingdom hoopla. (Tara)
+Not sure what to make of all this animal kingdom hoopla. 
 
 <!--end team alpacas-->
 <!--begin team ducks-->
