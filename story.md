@@ -11,6 +11,7 @@
 
 <!--end team alpacas-->
 <!--begin team ducks-->
+
 The Duck meets a new friend - his name is "Tooth". He said his middle name is "Danger" so the Duck should stay back.
 
 ![](http://static.fjcdn.com/gifs/Cats+Sharks+Ducks+Roombas+and+Poop.+Something+for+everyone_dcd9da_4786329.gif) 
