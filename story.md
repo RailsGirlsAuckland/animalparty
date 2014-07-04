@@ -22,4 +22,8 @@ this duck has had too much to drink
 
 this duck has had too much to eat
 ![too much to eat](http://31.media.tumblr.com/81f41ff0de03694bcd3add82c4397ceb/tumblr_myr04c9Hf41sj1nado1_400.gif)
+
+jazz hands
+
+[jazz hands](http://i.telegraph.co.uk/multimedia/archive/02049/leopard-cub_2049345a.jpg)
 <!--end team ducks-->
