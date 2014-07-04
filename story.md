@@ -24,7 +24,7 @@ Dog baby party (Carole)
 I can provide the music! (Emily)
 
 ![This guy!](http://31.media.tumblr.com/tumblr_mam3arXlMz1qz581wo2_250.gif)
-Hand washing party? (Sue-Li)
+Hand washing party?
 
 ![Camel attack](http://weknowgifs.com/wp-content/uploads/2013/03/jurassic-camel-attack-gif.gif)
 Camel attack!
