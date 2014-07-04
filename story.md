@@ -24,6 +24,11 @@ START THE MUSIC!
 
 ![bunny playing piano](http://media.giphy.com/media/H6JLWp6x8Cnio/giphy.gif)
 
+![cat playing bass](http://bit.ly/1vHdTQH)
+
+![squirrel playing drums](http://i194.photobucket.com/albums/z169/emmiedownunder/Animal%20Animations/Squirrel-Drummer.gif)
+
+
 ![COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH](http://media.giphy.com/media/K1SCAduBtyabe/giphy.gif)
 
 ![Bertie wants in on the fun](https://pbs.twimg.com/media/BkW-qN8CAAE2kDA.jpg)
