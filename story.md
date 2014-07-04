@@ -9,6 +9,8 @@ Jennifer was super pleased with the decision.
 
 ![horsefail](http://31.media.tumblr.com/b970f11763fd9d4cb7131efe706f7564/tumblr_n4wldryQJc1tv7yt8o1_400.gif)
 
+Honey, stop horsing around!
+
 Old Earl gets super powers.
 
 ![dressage](http://31.media.tumblr.com/acd17ae9fcbfb2b84f6194b7741629a9/tumblr_mqau9oSMUV1suq4izo1_250.gif)
