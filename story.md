@@ -50,6 +50,8 @@ I can haz pancake?
 ![elephantshrew](http://33.media.tumblr.com/73ec750cb8c64120749d6f7df4e80853/tumblr_mzvgflZfX71r4zr2vo2_r1_500.gif)
 I SMELL FUU-UUUUUN! (Annette)
 
+![owl](http://37.media.tumblr.com/25007fa61dae3637c0b0a12cc6d0490f/tumblr_n6qeivaZxV1s2yegdo1_400.gif)
+Excuse me, quiet down, some of us are trying to work! HOOT! (Annette)
 <!--end team alpacas-->
 <!--begin team ducks-->
 
