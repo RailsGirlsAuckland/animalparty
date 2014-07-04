@@ -5,9 +5,6 @@
 
 <!--end team bunnies-->
 <!--begin team tigers-->
-
-![gif description](http://disneypicture.net/data/media/182/tigger1.gif)
-
 ![gif Happy Elephant](https://i.chzbgr.com/maxW500/6806376192/h13D80AD0/)
 
 ![gif description](http://37.media.tumblr.com/tumblr_m9skqxFbps1rxfqqzo2_400.gif)
@@ -32,9 +29,8 @@
 
 ![Life of Pi Tiger](http://media.giphy.com/media/N1dXLHCuqwuM8/giphy.gif)
 
-![gif description](http://giphy.com/gifs/CBNRuvWDuw2sM)
+![gif description](http://media1.giphy.com/media/CBNRuvWDuw2sM/giphy.gif)
 
-![gif description](http://24.media.tumblr.com/tumblr_mbg7jtYyaA1qg1krko4_r1_250.gif)
 
 
 
