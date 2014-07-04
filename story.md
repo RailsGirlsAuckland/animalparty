@@ -30,13 +30,11 @@
 ![Wazaaaaaaah](https://i.chzbgr.com/maxW500/5685016576/hD50996E9/)
 
 ![Life of Pi Tiger](http://media.giphy.com/media/N1dXLHCuqwuM8/giphy.gif)
-#Tiger sailing the ocean
+#Tiger sails the ocean
 
 ![gif description](http://giphy.com/gifs/CBNRuvWDuw2sM)
 
 ![gif description](http://cur.glitter-graphics.net/pub/3146/3146938na9hmog2o3.gif)
-
-![gif description](http://i.imgur.com/nJdP4.gif)
 
 
 <!--end team tigers-->
