@@ -27,6 +27,8 @@ START THE MUSIC!
 
 ![bunny playing piano](http://media.giphy.com/media/H6JLWp6x8Cnio/giphy.gif)
 
+COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH
+
 ![COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH](http://media.giphy.com/media/K1SCAduBtyabe/giphy.gif)
 
 ![Bertie wants in on the fun](https://pbs.twimg.com/media/BkW-qN8CAAE2kDA.jpg)
