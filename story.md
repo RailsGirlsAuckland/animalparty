@@ -37,7 +37,7 @@ START THE MUSIC!
 
 ![Grandpa](http://i.imgur.com/6tFau.gif)
 
-#Megan's rat subheading
+#Rat's Are People Too
 
 ![Rat](http://38.media.tumblr.com/4f8709925f64b0d7d999ca2edab35be4/tumblr_n3imy2nhML1r195ndo1_400.gif)
 ![Rat](http://38.media.tumblr.com/f225816d6a716654570ea25a5208c516/tumblr_n1m6qmnrVo1shs94bo1_400.gif)
@@ -46,6 +46,7 @@ START THE MUSIC!
 #Party Pooper
 
 ![Hare](http://i.imgur.com/JwnuH9C.gif)
+
 ![AliceInWonderland](http://25.media.tumblr.com/tumblr_mdaykaH9hk1qc3nxxo2_250.gif)
 
 <!--end team bunnies-->
