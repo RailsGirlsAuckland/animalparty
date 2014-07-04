@@ -5,6 +5,9 @@
 
 <!--end team bunnies-->
 <!--begin team tigers-->
+
+![gif description](http://disneypicture.net/data/media/182/tigger1.gif)
+
 ![gif Happy Elephant](https://i.chzbgr.com/maxW500/6806376192/h13D80AD0/)
 
 ![gif description](http://37.media.tumblr.com/tumblr_m9skqxFbps1rxfqqzo2_400.gif)
