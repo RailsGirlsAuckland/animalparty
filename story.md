@@ -22,5 +22,7 @@ this duck has had too much to drink
 ![oh duck has had too much to drink](http://img1.wikia.nocookie.net/__cb20131014081207/degrassi/images/a/ac/Cute_duck.gif)
 ![the doctor duck has come to visit the duck who has had too much to drink]
 (http://www.clipartbest.com/cliparts/dT6/gB4/dT6gB4pT9.gif)
+this duck was mistaken for a dirty patch of carpet
 
+![this duck was mistaken for a dirty patch of carpet](http://a.gifb.in/092013/1378748336_vacuuming_a_duck.gif)
 <!--end team ducks-->
