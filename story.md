@@ -25,5 +25,5 @@ this duck has had too much to eat
 
 jazz hands
 
-[jazz hands](http://i.telegraph.co.uk/multimedia/archive/02049/leopard-cub_2049345a.jpg)
+![jazz hands](http://i.telegraph.co.uk/multimedia/archive/02049/leopard-cub_2049345a.jpg)
 <!--end team ducks-->
