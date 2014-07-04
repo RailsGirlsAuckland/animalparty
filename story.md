@@ -38,6 +38,9 @@ Git is so awful I can't even.
 ![everyone loves raccoons right?](http://24.media.tumblr.com/tumblr_m56wt4cdOm1qlbduko1_400.gif)
 It's not a party without dancing
 
+![confused doggy](http://viralentertainment.org/wp-content/uploads/2014/01/2.-Shiba-Inu-Scout-the-Bat.gif)
+Not sure what to make of all this animal kingdom hoopla. (Tara)
+
 <!--end team alpacas-->
 <!--begin team ducks-->
 
