@@ -42,8 +42,6 @@
 ![Life of Pi Tiger](http://media.giphy.com/media/N1dXLHCuqwuM8/giphy.gif)
 #Tiger sails the ocean
 
-![Life of Pi Tiger](http://media.giphy.com/media/80ugxCnklykhi/giphy.gif)
-
 ![Island Tiger](http://media.giphy.com/media/10rFZMpBnDHxHq/giphy.gif)
 
 ![gif description](http://giphy.com/gifs/CBNRuvWDuw2sM)
