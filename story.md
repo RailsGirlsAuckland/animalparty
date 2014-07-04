@@ -31,8 +31,13 @@ this duck was mistaken for a dirty patch of carpet
 
 ![this duck was mistaken for a dirty patch of carpet](http://a.gifb.in/092013/1378748336_vacuuming_a_duck.gif)
 
-![DUCK VADER](http://3.bp.blogspot.com/-VF6QZLC7ckQ/UEjUaCVxbRI/AAAAAAAABzU/pTGIMmQ37Bg/s1600/weh.jpg)
+DUCK VADER
 
+![DUCK VADER](http://3.bp.blogspot.com/-VF6QZLC7ckQ/UEjUaCVxbRI/AAAAAAAABzU/pTGIMmQ37Bg/s1600/weh.jpg)
+Arghhh THE ENEMY
+![the enemy](http://img.pandawhale.com/post-9764-Grumpy-Cat-clapping-gif-aim9.gif)
+
+duck world
 
 this duck has had too much to eat
 ![too much to eat](http://31.media.tumblr.com/81f41ff0de03694bcd3add82c4397ceb/tumblr_myr04c9Hf41sj1nado1_400.gif)
@@ -40,4 +45,5 @@ this duck has had too much to eat
 Meanwhile, the caterers were having some issues unpacking the food:
 
 ![cmonnnnnn opennnnn, I get u good](http://img.izismile.com/img/img4/20110929/1000/funny_animal_gif_animations_01.gif)
+![its duck world](http://justcuteanimals.com/wp-content/uploads/2013/11/cute-animals-pictures-baby-ducks-ducklings-slide-animated-gif.gif)
 <!--end team ducks-->
