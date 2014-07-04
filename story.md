@@ -58,7 +58,7 @@ Bertie wants in on the fun
 
 ![Grandpa](http://i.imgur.com/6tFau.gif)
 
-#Rat's Are People Too
+#Rats Are People Too
 
 ![Rat](http://38.media.tumblr.com/4f8709925f64b0d7d999ca2edab35be4/tumblr_n3imy2nhML1r195ndo1_400.gif)
 ![Rat](http://38.media.tumblr.com/f225816d6a716654570ea25a5208c516/tumblr_n1m6qmnrVo1shs94bo1_400.gif)
