@@ -1,4 +1,7 @@
 <!--begin team ponies-->
+![Team ponies kick off the barn dance](http://1.bp.blogspot.com/-slndmUOpLjc/UlLdsm3HIfI/AAAAAAAABCE/LM7a50n4Lc0/s1600/Moonwalk.gif)
+Team ponies kick off the barn dance
+
 ![Rock on](https://i.chzbgr.com/maxW500/7176447744/h7DE65B13/)
 
 ![thumbs up](http://i.imgur.com/vUJBo79.gif) 
