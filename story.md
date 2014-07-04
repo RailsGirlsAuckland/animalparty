@@ -21,7 +21,7 @@ Don't hate me because I'm fabulous.
 Dog baby party (Carole)
 
 ![Raccoon in a sprinkler](http://img.pandawhale.com/22474-Raccoon-Harpist-pH0E.gif)
-I can provide the music!
+I can provide the music! (Emily)
 
 ![This guy!](http://31.media.tumblr.com/tumblr_mam3arXlMz1qz581wo2_250.gif)
 Hand washing party? (Sue-Li)
