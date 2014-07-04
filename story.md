@@ -13,8 +13,6 @@
 
 ![gif Happy Elephant](https://i.chzbgr.com/maxW500/6806376192/h13D80AD0/)
 
-![Bounding Corgi](http://i.imgur.com/YeaaHBp.gif)
-
 ![gif description](http://viralcircus.com/wp-content/uploads/2013/12/11.gif)
 
 ![gif Happy Elephant](https://i.chzbgr.com/maxW500/6806376192/h13D80AD0/)
@@ -32,10 +30,11 @@
 ![Wazaaaaaaah](https://i.chzbgr.com/maxW500/5685016576/hD50996E9/)
 
 ![Life of Pi Tiger](http://media.giphy.com/media/N1dXLHCuqwuM8/giphy.gif)
+#Tiger sailing the ocean
 
 ![gif description](http://giphy.com/gifs/CBNRuvWDuw2sM)
 
-![gif description](http://media.giphy.com/media/UYvuYo9FJgcP6/giphy.gif)
+![gif description](http://cur.glitter-graphics.net/pub/3146/3146938na9hmog2o3.gif)
 
 
 <!--end team tigers-->
