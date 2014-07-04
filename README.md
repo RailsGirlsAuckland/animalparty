@@ -21,3 +21,6 @@ If you get stuck, ask a coach for help.
 
 When your team is done, your coach will merge your team branch back into the main branch, to make one mega-story.
 
+# When you're done go:
+
+[here!](http://railsgirlsauckland.github.io/Rails-Girls-Training/#/)
