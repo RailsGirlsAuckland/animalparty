@@ -2,7 +2,7 @@
 
 <!--end team ponies-->
 <!--begin team bunnies-->
-
+![o de do.... WAAAAHHHRRRRRR!!!!!!](http://i.imgur.com/EEFZqeM.gif)
 <!--end team bunnies-->
 <!--begin team tigers-->
 
