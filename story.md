@@ -31,7 +31,7 @@ this duck was mistaken for a dirty patch of carpet
 
 ![this duck was mistaken for a dirty patch of carpet](http://a.gifb.in/092013/1378748336_vacuuming_a_duck.gif)
 
-![DUCK VADER]http://3.bp.blogspot.com/-VF6QZLC7ckQ/UEjUaCVxbRI/AAAAAAAABzU/pTGIMmQ37Bg/s1600/weh.jpg
+![DUCK VADER](http://3.bp.blogspot.com/-VF6QZLC7ckQ/UEjUaCVxbRI/AAAAAAAABzU/pTGIMmQ37Bg/s1600/weh.jpg)
 
 
 <!--end team ducks-->
