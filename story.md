@@ -3,7 +3,7 @@
 <!--end team ponies-->
 <!--begin team bunnies-->
 #Pre-Party
-![bunny_bath](http://media.giphy.com/media/iDetu21VhxHtC/giphy.gif)
+![bunny_bath](http://media.giphy.com/media/iDetu21VhxHtC/giphy.gif) bunnies get sick and die when you bathe them! never do this just use a damp cloth if you have to clean them and wash one area keep your lil buns save everyone
 ![gif discription](http://media.giphy.com/media/z9tqT8hiuaNvG/giphy.gif)
 
 
