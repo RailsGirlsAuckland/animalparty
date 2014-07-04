@@ -4,6 +4,11 @@
 <!--begin team bunnies-->
 ##Pre-Party
 ![bunny_bath](http://media.giphy.com/media/iDetu21VhxHtC/giphy.gif)
+
+![Swim](http://38.media.tumblr.com/951886b5f12b160712c3fab713d064b4/tumblr_mqfzqnqiBG1qdretoo1_250.gif)
+![Swim](http://37.media.tumblr.com/ae972614821b628d54cd82231744da9d/tumblr_mqfzqnqiBG1qdretoo3_250.gif)
+![Swim](http://33.media.tumblr.com/ab203d13012636dcf25a1a886d65bea4/tumblr_mqfzqnqiBG1qdretoo2_250.gif)
+
 ![gif discription](http://media.giphy.com/media/z9tqT8hiuaNvG/giphy.gif)
 
 
@@ -16,19 +21,11 @@ Gotta look awesome and be fresh at the Animal Party.
 ![Ferocious lion attacks innocent giraffe](http://37.media.tumblr.com/0953f89a47a72134c548a0a04245dcca/tumblr_n3nxehRDS91qljj91o1_400.gif)
 [rock'n](http://gph.is/12Bl7aD)
 
-Walrus getting its  bikini body
-
-![walrus](http://www.pbh2.com/wordpress/wp-content/uploads/2012/10/funniest-animal-gifs-walrus-sit-ups.gif)
 
 
 START THE MUSIC!
 
 ![bunny playing piano](http://media.giphy.com/media/H6JLWp6x8Cnio/giphy.gif)
-
-![cat playing bass](http://bit.ly/1vHdTQH)
-
-![squirrel playing drums](http://i194.photobucket.com/albums/z169/emmiedownunder/Animal%20Animations/Squirrel-Drummer.gif)
-
 
 ![COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH](http://media.giphy.com/media/K1SCAduBtyabe/giphy.gif)
 
