@@ -12,6 +12,9 @@ Gotta look awesome and be fresh at the Animal Party.
 ![Catwalk](http://33.media.tumblr.com/b2e29fce0f7d3f5f4d86269300f90692/tumblr_my0o0iI7Yc1qay0t7o1_400.gif)
 "Catwalk"
 
+Hitting the dance floor
+![dance](http://cdn.gifstache.com/2012/10/3/gifstache.com_2170_1349388000.gif)
+
 ![o de do.... WAAAAHHHRRRRRR!!!!!!](http://i.imgur.com/EEFZqeM.gif)
 ![Ferocious lion attacks innocent giraffe](http://37.media.tumblr.com/0953f89a47a72134c548a0a04245dcca/tumblr_n3nxehRDS91qljj91o1_400.gif)
 [rock'n](http://gph.is/12Bl7aD)
