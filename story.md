@@ -56,7 +56,7 @@ this duck has had too much to drink
 this duck was mistaken for a dirty patch of carpet
 ![angrydaffy](http://mrwgifs.com/wp-content/uploads/2013/08/Daffy-Duck-Fires-a-Warning-Shot-In-Looney-Tunes-Gif.gif)
 
-![A cat kicking itself](http://gph.is/XN67J3)
+![A cat kicking itself](http://media3.giphy.com/media/yuqvIBjZNtSus/giphy.gif)
 
 ![this duck was mistaken for a dirty patch of carpet](http://a.gifb.in/092013/1378748336_vacuuming_a_duck.gif)
 
