@@ -17,6 +17,9 @@ Here come the alpacas!
 ![FAB LLAMA](http://i.imgur.com/pm8gm.gif)
 Don't hate me because I'm fabulous.
 
+![gif description](http://i.imgur.com/AiVGEwP.gif)
+Dog baby party (Carole)
+
 <!--end team alpacas-->
 <!--begin team ducks-->
 
