@@ -18,6 +18,8 @@ Gotta look awesome and be fresh at the Animal Party.
 
 #COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH
 
+![celtic_squirrel](http://i360.photobucket.com/albums/oo46/catsclips/Animated%20GIFs/squirrel_ukulele.gif)
+Who needs a fiddle when you have a guitar. Who needs The Corrs when you have a squirrel!
 
 
 ![COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH](http://media.giphy.com/media/K1SCAduBtyabe/giphy.gif)
