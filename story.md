@@ -20,6 +20,7 @@ carefully ducky! keep your balance
 ![the duck's friends took turns quacking](http://www.millan.net][IMG]http://www.millan.net/anims/gifs/ducks.gif)
 ![shooting duck](http://www.somegif.com/gifs/13918672231954283923.GIF)
 this duck has had too much to drink
+![darnceing duck](http://media.tumblr.com/93b8ac1a9e00fe5439741d7d1117b361/tumblr_inline_mmt7idl8L11qz4rgp.gif)
 
 ![oh duck has had too much to drink](http://img1.wikia.nocookie.net/__cb20131014081207/degrassi/images/a/ac/Cute_duck.gif)
 ![the doctor duck has come to visit the duck who has had too much to drink]
