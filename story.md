@@ -2,7 +2,7 @@
 
 <!--end team ponies-->
 <!--begin team bunnies-->
-##Pre-Party
+#Pre-Party
 ![bunny_bath](http://media.giphy.com/media/iDetu21VhxHtC/giphy.gif)
 ![gif discription](http://media.giphy.com/media/z9tqT8hiuaNvG/giphy.gif)
 
@@ -16,18 +16,11 @@ Gotta look awesome and be fresh at the Animal Party.
 ![Ferocious lion attacks innocent giraffe](http://37.media.tumblr.com/0953f89a47a72134c548a0a04245dcca/tumblr_n3nxehRDS91qljj91o1_400.gif)
 [rock'n](http://gph.is/12Bl7aD)
 
-Getting my bikini body
-![walrus](http://www.pbh2.com/wordpress/wp-content/uploads/2012/10/funniest-animal-gifs-walrus-sit-ups.gif)
 
 
 START THE MUSIC!
 
 ![bunny playing piano](http://media.giphy.com/media/H6JLWp6x8Cnio/giphy.gif)
-
-![cat playing bass](http://bit.ly/1vHdTQH)
-
-![squirrel playing drums](http://i194.photobucket.com/albums/z169/emmiedownunder/Animal%20Animations/Squirrel-Drummer.gif)
-
 
 ![COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH](http://media.giphy.com/media/K1SCAduBtyabe/giphy.gif)
 
@@ -40,6 +33,11 @@ START THE MUSIC!
 ![Dance](http://www.mobileapples.com/Assets/Content/Screensavers/anime3129.gif)
 ![Dance](http://fc07.deviantart.net/fs70/f/2013/242/e/3/bunny_dancing_gif__click_on_it____by_hyperndepressed-d6jvllg.gif)
 
+#Soft Kitty
+
+![Cat](http://www.somegif.com/gifs/1361342721295917461.GIF)
+
+![Cat](http://stcara.edublogs.org/files/2009/11/scouse-cat.gif)
 #Grandpa Joins In
 
 ![Grandpa](http://i.imgur.com/6tFau.gif)
@@ -56,9 +54,6 @@ START THE MUSIC!
 
 ![AliceInWonderland](http://25.media.tumblr.com/tumblr_mdaykaH9hk1qc3nxxo2_250.gif)
 
-
-#End of party
-![Dishes :(](http://i.imgur.com/aL48gx1.gif)
 <!--end team bunnies-->
 <!--begin team tigers-->
 
