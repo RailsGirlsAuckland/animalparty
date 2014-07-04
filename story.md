@@ -16,6 +16,8 @@ Gotta look awesome and be fresh at the Animal Party.
 ![Ferocious lion attacks innocent giraffe](http://37.media.tumblr.com/0953f89a47a72134c548a0a04245dcca/tumblr_n3nxehRDS91qljj91o1_400.gif)
 [rock'n](http://gph.is/12Bl7aD)
 
+Getting my bikini body
+![walrus](http://www.pbh2.com/wordpress/wp-content/uploads/2012/10/funniest-animal-gifs-walrus-sit-ups.gif)
 
 
 START THE MUSIC!
