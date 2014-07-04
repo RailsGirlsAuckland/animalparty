@@ -13,6 +13,8 @@
 
 ![gif Happy Elephant](https://i.chzbgr.com/maxW500/6806376192/h13D80AD0/)
 
+![Bounding Corgi](http://i.imgur.com/YeaaHBp.gif)
+
 ![gif description](http://viralcircus.com/wp-content/uploads/2013/12/11.gif)
 
 ![gif Happy Elephant](https://i.chzbgr.com/maxW500/6806376192/h13D80AD0/)
