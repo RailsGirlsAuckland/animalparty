@@ -23,6 +23,10 @@ Gotta look awesome and be fresh at the Animal Party.
 ![COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH](http://media.giphy.com/media/K1SCAduBtyabe/giphy.gif)
 
 ![Bertie wants in on the fun](https://pbs.twimg.com/media/BkW-qN8CAAE2kDA.jpg)
+
+#SWIGGITYSWAG
+
+![Dance](http://www.flappytclown.com/theShow/ATheshow_files/image004.gif)
 <!--end team bunnies-->
 <!--begin team tigers-->
 
