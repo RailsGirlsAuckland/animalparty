@@ -17,7 +17,7 @@ Gotta look awesome and be fresh at the Animal Party.
 [rock'n](http://gph.is/12Bl7aD)
 
 #COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH
-
+![follow your dreams](http://2.bp.blogspot.com/-CYC9luCS5U0/UVStb02R25I/AAAAAAAALI4/H6b66ENYjF4/s1600/follow-your-dreams.gif )
 START THE MUSIC!
 
 ![bunny playing piano](http://media.giphy.com/media/H6JLWp6x8Cnio/giphy.gif)
