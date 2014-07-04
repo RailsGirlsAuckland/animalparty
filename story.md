@@ -21,13 +21,17 @@ carefully ducky! keep your balance
 ![shooting duck](http://www.somegif.com/gifs/13918672231954283923.GIF)
 this duck has had too much to drink
 
+An eager young cat kicked off the dancing!
+
+![A cat kicking itself](http://media3.giphy.com/media/yuqvIBjZNtSus/giphy.gif)
+
 ![oh duck has had too much to drink](http://img1.wikia.nocookie.net/__cb20131014081207/degrassi/images/a/ac/Cute_duck.gif)
 ![the doctor duck has come to visit the duck who has had too much to drink]
 (http://www.clipartbest.com/cliparts/dT6/gB4/dT6gB4pT9.gif)
 this duck was mistaken for a dirty patch of carpet
 ![angrydaffy](http://mrwgifs.com/wp-content/uploads/2013/08/Daffy-Duck-Fires-a-Warning-Shot-In-Looney-Tunes-Gif.gif)
 ![angry duck](http://www.picgifs.com/disney-gifs/disney-gifs/donald-duck/disney-graphics-donald-duck-683668.gif)
-![A cat kicking itself](http://gph.is/XN67J3)
+
 
 ![this duck was mistaken for a dirty patch of carpet](http://a.gifb.in/092013/1378748336_vacuuming_a_duck.gif)
 <!--end team ducks-->
