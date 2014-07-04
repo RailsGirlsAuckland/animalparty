@@ -27,7 +27,7 @@
 
 ![Wazaaaaaaah](https://i.chzbgr.com/maxW500/5685016576/hD50996E9/)
 
-![gif description](http://media.giphy.com/media/N1dXLHCuqwuM8/giphy.gif)
+![Life of Pi Tiger](http://media.giphy.com/media/N1dXLHCuqwuM8/giphy.gif)
 
 ![gif description](http://giphy.com/gifs/CBNRuvWDuw2sM)
 
