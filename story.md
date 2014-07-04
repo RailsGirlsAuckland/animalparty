@@ -23,6 +23,7 @@ this duck has had too much to drink
 ![the doctor duck has come to visit the duck who has had too much to drink]
 (http://www.clipartbest.com/cliparts/dT6/gB4/dT6gB4pT9.gif)
 this duck was mistaken for a dirty patch of carpet
+the doctor duck has come to visit the duck who has had too much to drink
 
 ![this duck was mistaken for a dirty patch of carpet](http://a.gifb.in/092013/1378748336_vacuuming_a_duck.gif)
 <!--end team ducks-->
