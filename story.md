@@ -37,5 +37,5 @@ DUCK VADER
 Arghhh THE ENEMY
 ![the enemy](http://img.pandawhale.com/post-9764-Grumpy-Cat-clapping-gif-aim9.gif)
 
-
+![its duck world](http://justcuteanimals.com/wp-content/uploads/2013/11/cute-animals-pictures-baby-ducks-ducklings-slide-animated-gif.gif)
 <!--end team ducks-->
