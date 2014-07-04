@@ -9,7 +9,11 @@
 
 ![gif description](http://37.media.tumblr.com/tumblr_m9skqxFbps1rxfqqzo2_400.gif)
 
+![gif Happy Elephant](https://i.chzbgr.com/maxW500/6806376192/h13D80AD0/)
+
 ![gif description](http://viralcircus.com/wp-content/uploads/2013/12/11.gif)
+
+![gif Happy Elephant](https://i.chzbgr.com/maxW500/6806376192/h13D80AD0/)
 
 ![gif description](http://24.media.tumblr.com/tumblr_loeu0t80JE1qj5jozo1_500.gif)
 
@@ -23,7 +27,10 @@
 
 ![Wazaaaaaaah](https://i.chzbgr.com/maxW500/5685016576/hD50996E9/)
 
-![Life of Pi Tiger](http://media.giphy.com/media/N1dXLHCuqwuM8/giphy.gif)
+![gif description](http://media.giphy.com/media/N1dXLHCuqwuM8/giphy.gif)
+
+![gif description](http://giphy.com/gifs/CBNRuvWDuw2sM)
+
 
 
 <!--end team tigers-->
