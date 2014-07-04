@@ -18,7 +18,7 @@ The duck meets a new friend - his name is "Tooth". He said his middle name is "D
 
 ![](http://static.fjcdn.com/gifs/Cats+Sharks+Ducks+Roombas+and+Poop.+Something+for+everyone_dcd9da_4786329.gif) 
 
-The duck thought his friends would quack up about the friend's name. 
+The duck thought his friends would *quack* up about the Tooth's name. 
 
 ![the duck's friends took turn](http://www.millan.net/anims/gifs/ducks.gif)
 
