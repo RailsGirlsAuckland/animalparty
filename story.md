@@ -35,9 +35,6 @@ word got out there was a party, everyone forgot their handbags...
 ![bye llama](http://media.giphy.com/media/JVeaR3I5DWoJW/giphy.gif)
 Git is so awful I can't even. (sacha)
 
-![everyone loves raccoons right?](http://24.media.tumblr.com/tumblr_m56wt4cdOm1qlbduko1_400.gif)
-It's not a party without dancing
-
 ![confused doggy](http://viralentertainment.org/wp-content/uploads/2014/01/2.-Shiba-Inu-Scout-the-Bat.gif)
 Not sure what to make of all this animal kingdom hoopla. 
 
