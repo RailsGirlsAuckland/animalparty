@@ -16,13 +16,11 @@ Gotta look awesome and be fresh at the Animal Party.
 ![Ferocious lion attacks innocent giraffe](http://37.media.tumblr.com/0953f89a47a72134c548a0a04245dcca/tumblr_n3nxehRDS91qljj91o1_400.gif)
 [rock'n](http://gph.is/12Bl7aD)
 
-#COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH
+
 
 START THE MUSIC!
 
 ![bunny playing piano](http://media.giphy.com/media/H6JLWp6x8Cnio/giphy.gif)
-
-![Hare](http://i.imgur.com/JwnuH9C.gif)
 
 ![COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH](http://media.giphy.com/media/K1SCAduBtyabe/giphy.gif)
 
@@ -42,11 +40,13 @@ START THE MUSIC!
 #Megan's rat subheading
 
 ![Rat](http://38.media.tumblr.com/4f8709925f64b0d7d999ca2edab35be4/tumblr_n3imy2nhML1r195ndo1_400.gif)
-
 ![Rat](http://38.media.tumblr.com/f225816d6a716654570ea25a5208c516/tumblr_n1m6qmnrVo1shs94bo1_400.gif)
-
 ![Rat](http://38.media.tumblr.com/e19f9f0181a9b04fea3e09e713f5d33e/tumblr_mso9qkTduu1raafdzo1_400.gif)
 
+#Party Pooper
+
+![Hare](http://i.imgur.com/JwnuH9C.gif)
+![AliceInWonderland](http://25.media.tumblr.com/tumblr_mdaykaH9hk1qc3nxxo2_250.gif)
 
 <!--end team bunnies-->
 <!--begin team tigers-->
