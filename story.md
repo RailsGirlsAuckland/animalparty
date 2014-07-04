@@ -17,6 +17,8 @@
 
 ![gif description](http://media.giphy.com/media/hsrPf1h1VugHm/giphy.gif)
 
+![gif Happy Elephant](https://i.chzbgr.com/maxW500/6806376192/h13D80AD0/)
+
 
 <!--end team tigers-->
 <!--begin team alpacas-->
