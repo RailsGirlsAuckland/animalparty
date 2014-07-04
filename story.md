@@ -8,7 +8,7 @@
 
 <!--end team tigers-->
 <!--begin team alpacas-->
-![gif description](http://gifsec.com/wp-content/uploads/GIF/2014/04/GIF-Hamster-Eats-Carrots.gif)
+![Quadcarrot](http://gifsec.com/wp-content/uploads/GIF/2014/04/GIF-Hamster-Eats-Carrots.gif)
 This hamster is having a CARROT PARTY. I'd like to join. (Annette)
 
 ![Once upon a time there was a group of alpacas](http://media.giphy.com/media/zMtBVZPCqlLUY/giphy.gif)
@@ -50,6 +50,8 @@ Not sure what the fuss is about... Zzz
 ![nom](http://37.media.tumblr.com/tumblr_m9skqxFbps1rxfqqzo2_250.gif)
 I can haz pancake?
 
+![elephantshrew](http://33.media.tumblr.com/73ec750cb8c64120749d6f7df4e80853/tumblr_mzvgflZfX71r4zr2vo2_r1_500.gif)
+I SMELL FUU-UUUUUN! (Annette)
 
 <!--end team alpacas-->
 <!--begin team ducks-->
