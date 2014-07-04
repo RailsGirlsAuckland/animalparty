@@ -2,7 +2,7 @@
 
 <!--end team ponies-->
 <!--begin team bunnies-->
-#Pre-Party
+##Pre-Party
 ![bunny_bath](http://media.giphy.com/media/iDetu21VhxHtC/giphy.gif)
 ![gif discription](http://media.giphy.com/media/z9tqT8hiuaNvG/giphy.gif)
 
