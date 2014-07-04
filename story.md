@@ -16,7 +16,7 @@ Gotta look awesome and be fresh at the Animal Party.
 ![Ferocious lion attacks innocent giraffe](http://37.media.tumblr.com/0953f89a47a72134c548a0a04245dcca/tumblr_n3nxehRDS91qljj91o1_400.gif)
 [rock'n](http://gph.is/12Bl7aD)
 
-#COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH
+
 ![follow your dreams](http://2.bp.blogspot.com/-CYC9luCS5U0/UVStb02R25I/AAAAAAAALI4/H6b66ENYjF4/s1600/follow-your-dreams.gif )
 START THE MUSIC!
 
@@ -25,11 +25,11 @@ START THE MUSIC!
 
 ![COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH](http://media.giphy.com/media/K1SCAduBtyabe/giphy.gif)
 
+COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH
+
 ![Bertie wants in on the fun](https://pbs.twimg.com/media/BkW-qN8CAAE2kDA.jpg)
 
 #SWIGGITYSWAG
-
-![But I was left with the dishes :(](http://i.imgur.com/aL48gx1.gif)
 
 ![Dance](http://www.flappytclown.com/theShow/ATheshow_files/image004.gif)
 ![Dance](http://www.gokpop.com/i1/avatars/2/akredlm-o8d.gif)
