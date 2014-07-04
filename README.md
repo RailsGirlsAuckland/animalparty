@@ -21,3 +21,6 @@ You can check your branch is up to date before adding your GIF by clicking the '
 
 When your team is done, your coach will merge your team branch back into the main branch, to make one mega-story.
 
+# When you're done go:
+
+![here!](http://railsgirlsauckland.github.io/Rails-Girls-Training/#/)
