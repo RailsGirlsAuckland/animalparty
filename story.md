@@ -44,6 +44,8 @@ Not sure what to make of all this animal kingdom hoopla.
 ![upset](http://media.tumblr.com/tumblr_m9fz8kYUwc1rnm87e.gif)
 I can't make it work, waaaaah!
 
+![sleepy duckling](http://viralentertainment.org/wp-content/uploads/2014/01/9.-Sleeping-Duck.gif)
+Not sure what the fuss is about... Zzz
 
 <!--end team alpacas-->
 <!--begin team ducks-->
