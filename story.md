@@ -13,6 +13,7 @@ Gotta look awesome and be fresh at the Animal Party.
 "Catwalk"
 
 Hitting the dance floor
+
 ![dance](http://cdn.gifstache.com/2012/10/3/gifstache.com_2170_1349388000.gif)
 
 ![o de do.... WAAAAHHHRRRRRR!!!!!!](http://i.imgur.com/EEFZqeM.gif)
