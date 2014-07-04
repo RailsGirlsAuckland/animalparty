@@ -20,4 +20,5 @@ this duck has had too much to drink
 
 ![oh duck has had too much to drink](http://img1.wikia.nocookie.net/__cb20131014081207/degrassi/images/a/ac/Cute_duck.gif)
 
+![too much to eat](http://31.media.tumblr.com/81f41ff0de03694bcd3add82c4397ceb/tumblr_myr04c9Hf41sj1nado1_400.gif)
 <!--end team ducks-->
