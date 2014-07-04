@@ -18,6 +18,9 @@ Gotta look awesome and be fresh at the Animal Party.
 
 #COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH
 
+START THE MUSIC!
+
+![bunny playing piano](http://media.giphy.com/media/H6JLWp6x8Cnio/giphy.gif)
 
 
 ![COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH](http://media.giphy.com/media/K1SCAduBtyabe/giphy.gif)
