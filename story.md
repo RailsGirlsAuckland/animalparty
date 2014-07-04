@@ -46,4 +46,9 @@ Meanwhile, the caterers were having some issues unpacking the food:
 
 ![cmonnnnnn opennnnn, I get u good](http://img.izismile.com/img/img4/20110929/1000/funny_animal_gif_animations_01.gif)
 ![its duck world](http://justcuteanimals.com/wp-content/uploads/2013/11/cute-animals-pictures-baby-ducks-ducklings-slide-animated-gif.gif)
+
+BATDUCK
+
+![BATDUCK](http://2fun2fun.com/wp-content/uploads/2013/06/400381_548383805220130_125744062_n.jpg)
+
 <!--end team ducks-->
