@@ -27,7 +27,6 @@ I'm so fancy, you already know - I'm in the fast lane - From L.A. to Tokyo.
 
 ![Pony found his party glasses and started dancing gangam style](http://fc00.deviantart.net/fs70/f/2012/323/7/2/gangnam_commission__bat_pony_by_chocomilkterrorist-d5lgpuy.gif)
 
-
 <!--end team ponies-->
 <!--begin team bunnies-->
 
