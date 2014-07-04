@@ -7,10 +7,6 @@
 <!--begin team tigers-->
 ![gif description](http://37.media.tumblr.com/tumblr_m9skqxFbps1rxfqqzo2_400.gif)
 
-![Blingee Tiger](http://http://image.blingee.com/images19/content/output/000/000/000/79c/756116724_168362.gif)
-
-![gif Happy Elephant](https://i.chzbgr.com/maxW500/6806376192/h13D80AD0/)
-
 ![gif description](http://viralcircus.com/wp-content/uploads/2013/12/11.gif)
 
 ![gif description](http://24.media.tumblr.com/tumblr_loeu0t80JE1qj5jozo1_500.gif)
@@ -19,8 +15,7 @@
 
 ![gif description](http://data.whicdn.com/images/31308363/tumblr_ll40kpUpaA1qaay1oo1_500_large.gif)
 
-![gif description](http://media.giphy.com/media/hsrPf1h1VugHm/giphy.gif)
-
+![gif description](http://media.giphy.com/media/oENtFqfZZMIZq/giphy.gif)
 
 <!--end team tigers-->
 <!--begin team alpacas-->
