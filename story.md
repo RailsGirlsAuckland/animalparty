@@ -28,6 +28,8 @@ this duck was mistaken for a dirty patch of carpet
 ![angrydaffy](http://mrwgifs.com/wp-content/uploads/2013/08/Daffy-Duck-Fires-a-Warning-Shot-In-Looney-Tunes-Gif.gif)
 ![angry duck](http://www.picgifs.com/disney-gifs/disney-gifs/donald-duck/disney-graphics-donald-duck-683668.gif)
 ![A cat kicking itself](http://gph.is/XN67J3)
+![and the duck headed off on her OE adventure]
+(http://d.wapday.com:8080/animation/ccontennt/15593-f/dan_the_duck_walking.gif?__sid=ggl&lang=en)
 
 ![this duck was mistaken for a dirty patch of carpet](http://a.gifb.in/092013/1378748336_vacuuming_a_duck.gif)
 <!--end team ducks-->
