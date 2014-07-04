@@ -29,10 +29,10 @@ Hand washing party?
 ![Camel attack](http://weknowgifs.com/wp-content/uploads/2013/03/jurassic-camel-attack-gif.gif)
 Camel attack!
 
-![the invite] (https://i.chzbgr.com/maxW500/8232968448/h1DAE3B91/)
+![the invite](https://i.chzbgr.com/maxW500/8232968448/h1DAE3B91/)
 word got out there was a party, everyone forgot their handbags...
 
-![bye llama] (http://media.giphy.com/media/JVeaR3I5DWoJW/giphy.gif)
+![bye llama](http://media.giphy.com/media/JVeaR3I5DWoJW/giphy.gif)
 Git is so awful I can't even. (sacha)
 
 ![everyone loves raccoons right?](http://24.media.tumblr.com/tumblr_m56wt4cdOm1qlbduko1_400.gif)
