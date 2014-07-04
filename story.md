@@ -6,7 +6,7 @@
 ![bunny_bath](http://media.giphy.com/media/iDetu21VhxHtC/giphy.gif)
 ![gif discription](http://media.giphy.com/media/z9tqT8hiuaNvG/giphy.gif)
 
-
+![smackdown](https://38.media.tumblr.com/cc94e9ab56035848e639762551f729ae/tumblr_n86bafzm171r6q4zxo1_400.gif)
 Gotta look awesome and be fresh at the Animal Party.
 
 ![Catwalk](http://33.media.tumblr.com/b2e29fce0f7d3f5f4d86269300f90692/tumblr_my0o0iI7Yc1qay0t7o1_400.gif)
