@@ -46,7 +46,7 @@ the unicorn attempted to keep his duck friends under control
 ![the unicorn attempted to keep his duck friends under control](http://media.giphy.com/media/yTF8GYHr0oLvy/giphy.gif)
 carefully ducky! keep your balance
 ![cute wiggly duck](http://24.media.tumblr.com/881126acc46dfe11823fca09b33a84f6/tumblr_mwdpez2Fkp1r5hhjjo1_500.gif)
-![the duck's friends took turns quacking](http://www.millan.net][IMG]http://www.millan.net/anims/gifs/ducks.gif)
+![the duck's friends took turns quacking](http://www.millan.net/anims/gifs/ducks.gif)
 ![shooting duck](http://www.somegif.com/gifs/13918672231954283923.GIF)
 this duck has had too much to drink
 ![oh duck has had too much to drink](http://img1.wikia.nocookie.net/__cb20131014081207/degrassi/images/a/ac/Cute_duck.gif)
