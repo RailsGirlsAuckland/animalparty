@@ -1,4 +1,5 @@
 <!--begin team ponies-->
+<<<<<<< HEAD
 ![Team ponies kick off the barn dance](http://1.bp.blogspot.com/-slndmUOpLjc/UlLdsm3HIfI/AAAAAAAABCE/LM7a50n4Lc0/s1600/Moonwalk.gif)
 Team ponies kick off the barn dance
 
@@ -21,6 +22,8 @@ Old Earl gets super powers.
 I'm so fancy, you already know - I'm in the fast lane - From L.A. to Tokyo.
 
 ![horsey](http://38.media.tumblr.com/tumblr_mcamqug5yJ1rjzp1po1_400.gif)
+
+![Moon Walking like a pro](https://38.media.tumblr.com/63a0f448c5857ca8429d0e89519b412c/tumblr_myf7oiWdcf1snt67ko1_500.gif)
 
 
 <!--end team ponies-->
