@@ -27,4 +27,5 @@ this duck has had too much to drink
 this duck was mistaken for a dirty patch of carpet
 
 ![this duck was mistaken for a dirty patch of carpet](http://a.gifb.in/092013/1378748336_vacuuming_a_duck.gif)
+![finding the vacuumed duck hilarious](http://media.giphy.com/media/gFgwnADVzsek0/giphy.gif)
 <!--end team ducks-->
