@@ -29,6 +29,8 @@ START THE MUSIC!
 
 #SWIGGITYSWAG
 
+![But I was left with the dishes :(](http://i.imgur.com/aL48gx1.gif)
+
 ![Dance](http://www.flappytclown.com/theShow/ATheshow_files/image004.gif)
 ![Dance](http://www.gokpop.com/i1/avatars/2/akredlm-o8d.gif)
 ![Dance](http://www.mobileapples.com/Assets/Content/Screensavers/anime3129.gif)
