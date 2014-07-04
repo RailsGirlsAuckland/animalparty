@@ -47,6 +47,10 @@ I can't make it work, waaaaah!
 ![sleepy duckling](http://viralentertainment.org/wp-content/uploads/2014/01/9.-Sleeping-Duck.gif)
 Not sure what the fuss is about... Zzz
 
+![nom](http://37.media.tumblr.com/tumblr_m9skqxFbps1rxfqqzo2_250.gif)
+I can haz pancake?
+
+
 <!--end team alpacas-->
 <!--begin team ducks-->
 
