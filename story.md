@@ -17,6 +17,7 @@ Gotta look awesome and be fresh at the Animal Party.
 ![COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH](http://media.giphy.com/media/K1SCAduBtyabe/giphy.gif)
 
 ![And we were like whaaaaaaat?!](http://i.imgur.com/WIrUykX.gif)
+![Suprised kitty](http://media2.giphy.com/media/BgnKc6mLmE8tq/giphy.gif)
 <!--end team bunnies-->
 <!--begin team tigers-->
 
