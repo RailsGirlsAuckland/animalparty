@@ -5,8 +5,17 @@
 
 <!--end team bunnies-->
 <!--begin team tigers-->
-![gif description](http://disneypicture.net/data/media/182/tigger1.gif)
+
 #Fabulous
+
+#Fabulous
+
+#Fabulous
+
+#Fabulous
+#Fabulous
+
+![gif description](http://disneypicture.net/data/media/182/tigger1.gif)
 
 ![gif Happy Elephant](https://i.chzbgr.com/maxW500/6806376192/h13D80AD0/)
 
@@ -36,8 +45,6 @@
 ![gif description](http://giphy.com/gifs/CBNRuvWDuw2sM)
 
 ![gif description](http://cur.glitter-graphics.net/pub/3146/3146938na9hmog2o3.gif)
-
-![](http://i.imgur.com/nJdP4.gif)
 
 
 <!--end team tigers-->
