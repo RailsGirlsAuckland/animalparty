@@ -20,6 +20,9 @@ Don't hate me because I'm fabulous.
 ![gif description](http://i.imgur.com/AiVGEwP.gif)
 Dog baby party (Carole)
 
+![Raccoon in a sprinkler](http://img.pandawhale.com/22474-Raccoon-Harpist-pH0E.gif)
+I can provide the music!
+
 <!--end team alpacas-->
 <!--begin team ducks-->
 
