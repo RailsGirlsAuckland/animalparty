@@ -7,7 +7,7 @@
 ![gif discription](http://media.giphy.com/media/z9tqT8hiuaNvG/giphy.gif)
 
 
-Gotta look good and be fresh at the Animal Party.
+Gotta look awesome and be fresh at the Animal Party.
 
 
 ![o de do.... WAAAAHHHRRRRRR!!!!!!](http://i.imgur.com/EEFZqeM.gif)
