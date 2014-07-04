@@ -32,6 +32,9 @@ Camel attack!
 ![the invite] (https://i.chzbgr.com/maxW500/8232968448/h1DAE3B91/)
 word got out there was a party, everyone forgot their handbags...
 
+![bye llama] (http://media.giphy.com/media/JVeaR3I5DWoJW/giphy.gif)
+Git is so awful I can't even.
+
 
 <!--end team alpacas-->
 <!--begin team ducks-->
