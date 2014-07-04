@@ -29,7 +29,7 @@ Gotta look awesome and be fresh at the Animal Party.
 ![Dance](http://www.flappytclown.com/theShow/ATheshow_files/image004.gif)
 ![Dance](http://www.gokpop.com/i1/avatars/2/akredlm-o8d.gif)
 ![Dance](http://www.mobileapples.com/Assets/Content/Screensavers/anime3129.gif)
-![Super intimidating](http://media.giphy.com/media/Hf96a5Kd5WprO/giphy.gif)
+![Dance](http://fc07.deviantart.net/fs70/f/2013/242/e/3/bunny_dancing_gif__click_on_it____by_hyperndepressed-d6jvllg.gif)
 <!--end team bunnies-->
 <!--begin team tigers-->
 
