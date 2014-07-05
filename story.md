@@ -125,7 +125,7 @@ Bertie wants in on the fun
 ![gif Happy Elephant](https://i.chzbgr.com/maxW500/6806376192/h13D80AD0/)
 
 ![gif description](http://37.media.tumblr.com/tumblr_m9skqxFbps1rxfqqzo2_400.gif)
-#This pancake is bigger than my face
+##This pancake is bigger than my face
 
 ![gif Happy Elephant](https://i.chzbgr.com/maxW500/6806376192/h13D80AD0/)
 
@@ -144,10 +144,10 @@ Bertie wants in on the fun
 ![Majestic Shaking](https://38.media.tumblr.com/bcb18a773a35eaf8d8e8c2e5864e0a14/tumblr_n83f7vi5bk1smts3eo1_400.gif)
 
 ![Wazaaaaaaah](https://i.chzbgr.com/maxW500/5685016576/hD50996E9/)
-#Wazaaaaaaah
+##Wazaaaaaaah
 
 ![Life of Pi Tiger](http://media.giphy.com/media/N1dXLHCuqwuM8/giphy.gif)
-#Tiger sails the ocean
+##Tiger sails the ocean
 
 ![gif description](http://giphy.com/gifs/CBNRuvWDuw2sM)
 
@@ -158,8 +158,6 @@ Bertie wants in on the fun
 ![gif description](http://media1.giphy.com/media/CBNRuvWDuw2sM/giphy.gif)
 
 ![](http://data.whicdn.com/images/9924676/tumblr_llf8n0VAS91qaay1oo1_500_large.gif)
-
-
 
 
 <!--end team tigers-->
