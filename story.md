@@ -11,6 +11,7 @@
 Gotta look awesome and be fresh at the Animal Party.
 
 ![Catwalk](http://33.media.tumblr.com/b2e29fce0f7d3f5f4d86269300f90692/tumblr_my0o0iI7Yc1qay0t7o1_400.gif)
+
 "Catwalk"
 
 Let's go! COME ON.
@@ -78,6 +79,7 @@ Rats can't dance!
 
 ![AliceInWonderland](http://25.media.tumblr.com/tumblr_mdaykaH9hk1qc3nxxo2_250.gif)
 
+![Grmupy Cat](http://media.giphy.com/media/LbGtuww7ZFhgQ/giphy.gif)
 
 #End of party
 
@@ -97,9 +99,9 @@ Melt it!
 
 ![Melt](http://i.imgur.com/cCPh3fg.gif)
 
-Grumpy Cat doesn't want to clean the wall.
+Grumpy Cat wants them to what?
 
-[Grumpy Cat](http://www.travelfreak.com/wp-content/uploads/2014/06/grumpy-cat.gif)
+[Grumpy Cat](http://classandtrashshow.files.wordpress.com/2014/02/grumpy-cat-gif-attack.gif)
 
 #And Fin.
 
