@@ -18,7 +18,9 @@ Hitting the dance floor
 ![dance](http://cdn.gifstache.com/2012/10/3/gifstache.com_2170_1349388000.gif)
 
 ![o de do.... WAAAAHHHRRRRRR!!!!!!](http://i.imgur.com/EEFZqeM.gif)
+
 ![Ferocious lion attacks innocent giraffe](http://37.media.tumblr.com/0953f89a47a72134c548a0a04245dcca/tumblr_n3nxehRDS91qljj91o1_400.gif)
+
 [rock'n](http://gph.is/12Bl7aD)
 
 Walrus getting its  bikini body
@@ -52,7 +54,9 @@ Bertie wants in on the fun
 #Soft Kitty
 
 ![Cat](http://www.amberhouse.co.nz/cat-dancing.gif)
+
 ![Cat](http://www.somegif.com/gifs/1361342721295917461.GIF)
+
 ![Cat](http://stcara.edublogs.org/files/2009/11/scouse-cat.gif)
 
 #Grandpa Joins In
@@ -62,7 +66,9 @@ Bertie wants in on the fun
 #Rats Are People Too
 
 ![Rat](http://38.media.tumblr.com/4f8709925f64b0d7d999ca2edab35be4/tumblr_n3imy2nhML1r195ndo1_400.gif)
+
 ![Rat](http://38.media.tumblr.com/f225816d6a716654570ea25a5208c516/tumblr_n1m6qmnrVo1shs94bo1_400.gif)
+
 ![Rat](http://38.media.tumblr.com/e19f9f0181a9b04fea3e09e713f5d33e/tumblr_mso9qkTduu1raafdzo1_400.gif)
 
 #Party Pooper
