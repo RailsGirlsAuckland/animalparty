@@ -13,7 +13,7 @@ Gotta look awesome and be fresh at the Animal Party.
 ![Catwalk](http://33.media.tumblr.com/b2e29fce0f7d3f5f4d86269300f90692/tumblr_my0o0iI7Yc1qay0t7o1_400.gif)
 "Catwalk"
 
-Hitting the dance floor
+Let's go! COME ON.
 
 ![dance](http://cdn.gifstache.com/2012/10/3/gifstache.com_2170_1349388000.gif)
 
@@ -27,6 +27,13 @@ Walrus getting its  bikini body
 
 ![walrus](http://www.pbh2.com/wordpress/wp-content/uploads/2012/10/funniest-animal-gifs-walrus-sit-ups.gif)
 
+COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH
+
+![COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH](http://media.giphy.com/media/K1SCAduBtyabe/giphy.gif)
+
+Bertie wants in on the fun
+
+![Bertie wants in on the fun](https://pbs.twimg.com/media/BkW-qN8CAAE2kDA.jpg)
 
 START THE MUSIC!
 
@@ -36,22 +43,16 @@ START THE MUSIC!
 
 ![squirrel playing drums](http://i194.photobucket.com/albums/z169/emmiedownunder/Animal%20Animations/Squirrel-Drummer.gif)
 
-COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH
+#DANCING TIME
 
-![COME ON YOU GUYS, LET'S GO, THIS IS SO EXCITING AAAAAAH](http://media.giphy.com/media/K1SCAduBtyabe/giphy.gif)
-
-Bertie wants in on the fun
-
-![Bertie wants in on the fun](https://pbs.twimg.com/media/BkW-qN8CAAE2kDA.jpg)
-
-#SWIGGITYSWAG
+Swiggity Swag
 
 ![Dance](http://www.flappytclown.com/theShow/ATheshow_files/image004.gif)
 ![Dance](http://www.gokpop.com/i1/avatars/2/akredlm-o8d.gif)
 ![Dance](http://www.mobileapples.com/Assets/Content/Screensavers/anime3129.gif)
 ![Dance](http://fc07.deviantart.net/fs70/f/2013/242/e/3/bunny_dancing_gif__click_on_it____by_hyperndepressed-d6jvllg.gif)
 
-#Soft Kitty
+Cat Walk
 
 ![Cat](http://www.amberhouse.co.nz/cat-dancing.gif)
 
@@ -59,11 +60,11 @@ Bertie wants in on the fun
 
 ![Cat](http://stcara.edublogs.org/files/2009/11/scouse-cat.gif)
 
-#Grandpa Joins In
+Grandpa joins in
 
 ![Grandpa](http://i.imgur.com/6tFau.gif)
 
-#Rats Are People Too
+Rats can't dance!
 
 ![Rat](http://38.media.tumblr.com/4f8709925f64b0d7d999ca2edab35be4/tumblr_n3imy2nhML1r195ndo1_400.gif)
 
@@ -79,7 +80,29 @@ Bertie wants in on the fun
 
 
 #End of party
+
 ![Dishes :(](http://i.imgur.com/aL48gx1.gif)
+
+![Vacuuming](http://www.hellawella.com/sites/hellawella.com/files/images/house/CatCleaning/6_CatRoomba2.gif)
+
+![IDK WAT](http://www.hellawella.com/sites/hellawella.com/files/images/house/CatCleaning/1_CatDuster.gif)
+
+The puppy needs to be clean too!
+
+![Foxy](http://www.blogcdn.com/www.pawnation.com/media/2013/02/ears.gif) 
+
+![Floor](http://i.imgur.com/46WEAzZ.gif)
+
+Melt it!
+
+![Melt](http://i.imgur.com/cCPh3fg.gif)
+
+Grumpy Cat doesn't want to clean the wall.
+
+[Grumpy Cat](http://www.travelfreak.com/wp-content/uploads/2014/06/grumpy-cat.gif)
+
+#And Fin.
+
 <!--end team bunnies-->
 <!--begin team tigers-->
 
