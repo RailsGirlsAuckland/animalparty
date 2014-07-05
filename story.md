@@ -45,4 +45,8 @@ BATDUCK
 
 ![BATDUCK](http://2fun2fun.com/wp-content/uploads/2013/06/400381_548383805220130_125744062_n.jpg)
 
+Dey are everywhere
+
+![dey are everywhere](http://i.imgur.com/vaLYc.jpg)
+
 <!--end team ducks-->
