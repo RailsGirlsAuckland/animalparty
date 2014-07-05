@@ -1,4 +1,5 @@
 <!--begin team ponies-->
+# Ponies
 
 ![Team ponies kick off the barn dance](http://1.bp.blogspot.com/-slndmUOpLjc/UlLdsm3HIfI/AAAAAAAABCE/LM7a50n4Lc0/s1600/Moonwalk.gif)
 Team ponies kick off the barn dance
@@ -31,6 +32,9 @@ I'm so fancy, you already know - I'm in the fast lane - From L.A. to Tokyo.
 
 <!--end team ponies-->
 <!--begin team bunnies-->
+
+# Bunnies
+
 ##Pre-Party
 ![bunny_bath](http://media.giphy.com/media/iDetu21VhxHtC/giphy.gif)
 ![gif discription](http://media.giphy.com/media/z9tqT8hiuaNvG/giphy.gif)
@@ -70,43 +74,49 @@ Bertie wants in on the fun
 
 ![Bertie wants in on the fun](https://pbs.twimg.com/media/BkW-qN8CAAE2kDA.jpg)
 
-#SWIGGITYSWAG
+## SWIGGITYSWAG
 
 ![Dance](http://www.flappytclown.com/theShow/ATheshow_files/image004.gif)
 ![Dance](http://www.gokpop.com/i1/avatars/2/akredlm-o8d.gif)
 ![Dance](http://www.mobileapples.com/Assets/Content/Screensavers/anime3129.gif)
 ![Dance](http://fc07.deviantart.net/fs70/f/2013/242/e/3/bunny_dancing_gif__click_on_it____by_hyperndepressed-d6jvllg.gif)
 
-#Soft Kitty
+## Soft Kitty
 
 ![Cat](http://www.amberhouse.co.nz/cat-dancing.gif)
 ![Cat](http://www.somegif.com/gifs/1361342721295917461.GIF)
 ![Cat](http://stcara.edublogs.org/files/2009/11/scouse-cat.gif)
 
-#Grandpa Joins In
+## Grandpa Joins In
 
 ![Grandpa](http://i.imgur.com/6tFau.gif)
 
-#Rat's Are People Too
+## Rat's Are People Too
 
 ![Rat](http://38.media.tumblr.com/4f8709925f64b0d7d999ca2edab35be4/tumblr_n3imy2nhML1r195ndo1_400.gif)
 ![Rat](http://38.media.tumblr.com/f225816d6a716654570ea25a5208c516/tumblr_n1m6qmnrVo1shs94bo1_400.gif)
 ![Rat](http://38.media.tumblr.com/e19f9f0181a9b04fea3e09e713f5d33e/tumblr_mso9qkTduu1raafdzo1_400.gif)
 
-#Party Pooper
+## Party Pooper
 
 ![Hare](http://i.imgur.com/JwnuH9C.gif)
 
 ![AliceInWonderland](http://25.media.tumblr.com/tumblr_mdaykaH9hk1qc3nxxo2_250.gif)
 
 
-#End of party
+## End of party
 ![Dishes :(](http://i.imgur.com/aL48gx1.gif)
+
 <!--end team bunnies-->
 <!--begin team tigers-->
 
+# Tigers
+
 <!--end team tigers-->
 <!--begin team alpacas-->
+
+# Alpacas
+
 ![Quadcarrot](http://gifsec.com/wp-content/uploads/GIF/2014/04/GIF-Hamster-Eats-Carrots.gif)
 This hamster is having a CARROT PARTY. I'd like to join. (Annette)
 
@@ -164,6 +174,8 @@ This is amazing once you figure out how to use it!
 
 <!--end team alpacas-->
 <!--begin team ducks-->
+
+# Ducks
 
 The Duck meets a new friend - his name is "Tooth". He said his middle name is "Danger" so the Duck should stay back.
 
