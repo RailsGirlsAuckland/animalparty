@@ -5,6 +5,7 @@
 ##Pre-Party
 ![bunny_bath](http://media.giphy.com/media/iDetu21VhxHtC/giphy.gif)
 ![gif discription](http://media.giphy.com/media/z9tqT8hiuaNvG/giphy.gif)
+
 ![makeup](http://media.tumblr.com/c1270ef1411662334d806ce0875936e9/tumblr_inline_mvh23ssdLR1s7uz2y.gif)
 
 Gotta look awesome and be fresh at the Animal Party.
