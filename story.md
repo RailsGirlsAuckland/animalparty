@@ -109,15 +109,16 @@ Bertie wants in on the fun
 
 <!--end team bunnies-->
 <!--begin team tigers-->
+# Tigers
+
 ![birdie](http://media.giphy.com/media/13mJnogwwLGmxa/giphy.gif)
 
-#Fabulous
 ##Fabulous
 ###Fabulous
 ####Fabulous
 #####Fabulous
 ![gif description](http://disneypicture.net/data/media/182/tigger1.gif)
-#Fabulous
+##Fabulous
 
 ![Fake tiger!](http://www.hilariousheadlines.com/wp-content/uploads/2009/12/funny-tiger-photo-3.jpg)
 
@@ -159,7 +160,7 @@ Bertie wants in on the fun
 ![](http://data.whicdn.com/images/9924676/tumblr_llf8n0VAS91qaay1oo1_500_large.gif)
 
 
-# Tigers
+
 
 <!--end team tigers-->
 <!--begin team alpacas-->
