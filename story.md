@@ -281,4 +281,3 @@ using my puppy dog eyes
 ![using my puppy dog eyes] (http://www.thefrisky.com/wp-content/uploads/2013/04/16/cute-puppies13.gif)
 
 <!--end team ducks-->
-<!--words-->
