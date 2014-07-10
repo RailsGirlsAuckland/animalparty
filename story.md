@@ -53,4 +53,8 @@ YEAH killhim
 
 ![yeah gethim goood](http://mrwgifs.com/wp-content/uploads/2013/08/Muscle-Duck-Mows-Toms-Back-On-Tom-and-Jerry-Gif-.gif)
 
+RUN PUNY HUMANS
+
+![Run puny humans]{http://metronewsca.files.wordpress.com/2012/11/showdown-ducks.gif}
+
 <!--end team ducks-->
