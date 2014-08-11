@@ -280,4 +280,21 @@ jazz hands
 using my puppy dog eyes
 ![using my puppy dog eyes] (http://www.thefrisky.com/wp-content/uploads/2013/04/16/cute-puppies13.gif)
 
+Dey are everywhere
+
+![dey are everywhere](http://i.imgur.com/vaLYc.jpg)
+
+YAAY WE WIN
+
+![yeah gethim goood](http://mrwgifs.com/wp-content/uploads/2013/08/Muscle-Duck-Mows-Toms-Back-On-Tom-and-Jerry-Gif-.gif)
+
+RUN PUNY HUMANS
+
+![Run puny humans](http://metronewsca.files.wordpress.com/2012/11/showdown-ducks.gif)
+
+
+
+
+
+
 <!--end team ducks-->
